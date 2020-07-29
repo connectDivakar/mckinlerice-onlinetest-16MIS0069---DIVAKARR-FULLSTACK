@@ -1,1 +1,1 @@
-# mckinlerice-onlinetest-16MIS0069---DIVAKARR-FULLSTACK
+# mckinleyrice-onlinetest-16MIS0069---DIVAKARR-FULLSTACK
